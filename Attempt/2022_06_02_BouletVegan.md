@@ -3,6 +3,7 @@ I would like to see if we can do "Boulet Liègioise with Vegan version".
 
 
 
+![image](https://github.com/EloiStree/2022_06_28_MyCookBook/assets/20149493/c348a635-9c77-4cf7-baf9-38a099ad623f)
 
 https://youtu.be/Iqw_Db34GEY?t=364
 - Gras de viande dans la pouel
