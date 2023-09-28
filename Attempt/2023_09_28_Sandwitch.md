@@ -29,4 +29,10 @@ Dago belge proche du printanier
 - salade
 - gouda
 - tomate
-- 
+
+
+https://youtu.be/okDSEBNB8S4
+- Jaune d'oeuf, jus citron, arisa, huile, ail => mixed all pour faire une mayonnaise episer
+- Carote concombre, radis, 
+
+
